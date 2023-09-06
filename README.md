@@ -16,7 +16,7 @@ Here are some ideas to get you started:
 -->
 
 # 💫 About Me:
-올라가 on the moon, why do you look so blue?🌙<br>Baby, you, can you hear me? 오직 둘이서만🌷<br>은하철도 구구구 이젠 계속되고 싶어🌈<br>나의 happy girl 너의 happy girl🫶<br>올라가 on the moon, why do you look so blue?💙<br>Baby, you, can you hear me? 오직 둘이서만💌<br>은하철도 구구구 이젠 계속되고 싶어🔮<br>나의 happy girl 너의 happy girl💐
+stan skz
 
 
 ## 🌐 Socials:
